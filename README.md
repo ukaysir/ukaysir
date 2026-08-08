@@ -1,6 +1,6 @@
 ### hi, I'm ukaysir
 
-AI slopper master · Daegu
+AI slopper
 
 <br/>
 
